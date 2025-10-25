@@ -1,7 +1,7 @@
-# Swearts/envy has a history of taking a server that shutdown and trying to bring it back, but he decides to fake all of his proof inside of it. He faked owning FMod, Elixir, and currently, He just faked an Exit Screenshot!
+# Swearts/envy has a history of taking a server that shutdown and trying to bring it back, but he decides to fake all of his proof inside of it. He faked owning FMod, Elixir, and currently, He just faked a screenshot for Exit.
 ![image](https://github.com/user-attachments/assets/412e19c4-d177-49ce-bce1-7ad3a9246a0a)
 # ^^ The image swearts told me "rio" gave him full perms
-# Also, to explain these screenshots were found when I discovered that the rio account he made for the screenshot was fake. Because swearts is fucking stupid and joined on an alt account 💀 (which was his fake rio account)
+# Also, explaining these screenshots were found when I discovered that the rio account he made for the screenshot was fake. Because swearts is fucking stupid and joined on an alt account 💀 (which was his fake rio account)
 ![Screenshot 2025-06-03 163328](https://github.com/user-attachments/assets/e431be0d-b9d4-4e87-ad6a-b8407090213b)
 ![Screenshot 2025-06-03 155442](https://github.com/user-attachments/assets/37f52bd6-1333-47cb-a927-5430705f283c)
 ![Screenshot 2025-06-03 155729](https://github.com/user-attachments/assets/0eb108bd-a391-4d4e-b42f-a3c23e45c4a7)
