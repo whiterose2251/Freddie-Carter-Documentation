@@ -9,7 +9,7 @@ ID: 1142926026352119939
 No Badges
 No Public Badges
 
-Account Creation
+# Account Creation
 
 Created on:
 
@@ -19,7 +19,7 @@ Account age:
 
 2.2 years (806 days)
 
-Other Info
+# Other Info
 
 Accent Color: Not set
 Banner Color:
@@ -38,7 +38,7 @@ discriminator: 0
 
 display_name_styles: Not set
 
-Technical Details
+# Technical Details
 
 ID: 1142926026352119939
 Creation Timestamp: 1692565199221
