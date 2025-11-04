@@ -6,4 +6,6 @@
 
 # Swearts Lying about diffrent people running Elix
 <img width="303" height="342" alt="image" src="https://github.com/user-attachments/assets/cca21167-731b-44b3-9f30-7235fcdcb22c" />
+<img width="303" height="342" alt="image" src="https://github.com/user-attachments/assets/d04e95c6-a1c7-46d3-9d4a-9418501252b1" />
 
+![leak](https://github.com/user-attachments/assets/d04e95c6-a1c7-46d3-9d4a-9418501252b1)
