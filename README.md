@@ -2,7 +2,8 @@
 Welcome back, he has decided to return to OGFN so I thought why not discover the truth of the owner. 
 
 # Notice:
-This document is old and kind of cringy. Its stupid, but swearts did do some bad things and I'm going to republish it for good this time. It's not *that* bad but its still kinda fucked up.
+This document is old and really cringey. Its stupid, but swearts did do some bad things and I'm going to republish it for good this time. It's not *that* bad but its still kinda fucked up. 
+
 
 # Swearts new server:
 
