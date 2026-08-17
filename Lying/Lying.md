@@ -12,7 +12,7 @@
 ![Screenshot 2025-06-01 103055](https://github.com/user-attachments/assets/36f15410-5ab3-430e-be03-46db468ca47f)
 ![Screenshot 2025-06-01 103009](https://github.com/user-attachments/assets/59902bd3-1905-455b-876b-7b96421b98c7)
 ![Screenshot 2025-06-01 102710](https://github.com/user-attachments/assets/da5207c9-118f-40e0-8846-216106e14933)
-# Before & After (notice the 'edited' text 💀)
+# Before & After (notice the 'edited' text)
 ![Screenshot 2025-06-01 085456](https://github.com/user-attachments/assets/245a721f-c2f4-452d-bb63-20bd8f01823a)
 ![Screenshot 2025-06-01 071632](https://github.com/user-attachments/assets/a1e9e6c6-57c2-4668-8d24-e0465c35f092)
 # For a content creator for exit, not very good?
